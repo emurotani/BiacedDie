@@ -1,2 +1,0 @@
-# BiacedDie
-ARVO2021
